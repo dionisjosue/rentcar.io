@@ -16,4 +16,4 @@ No compartimos información con terceros.
 El usuario puede solicitar la eliminación de sus datos en cualquier momento.
 
 Contacto:
-correo@tudominio.com
+dionisjosue@gmail.com
